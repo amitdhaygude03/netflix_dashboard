@@ -27,4 +27,4 @@ To explore the dashboard:
 
 ## Contact
 
-For inquiries and collaborations, feel free to reach out to mks465261@gmail.com.
+https://www.linkedin.com/in/amit-dhaygude-6ab337353/
